@@ -1,25 +1,29 @@
-_*Paulina Priftakis*_
+# Paulina Priftakis
 
 **paulinap3462@hstat.org**
 
 _**Hstat**_
 
-***I love to draw realism and am getting into electric guitars. I also half Greek and Russian. Going to the gym keeps me motivated!***
+# Fun facts!
 
-_**Class Schedule:**_
+   * I love to draw realism and am getting into electric guitars. 
+   * I also half Greek and Russian.
+   * Going to the gym keeps me motivated!
 
-****1: Algebra****
+* Class Schedule:
 
-****2: SEP****
+***1: Algebra***
 
-****3: Ap US History****
+***2: SEP***
 
-****4: Ap Language****
+***3: Ap US History***
 
-****5: Lunch****
+***4: Ap Language***
 
-****6: Physics****
+***5: Lunch***
 
-****7: Spanish****
+***6: Physics***
 
-****8: Play productions****
+***7: Spanish***
+
+***8: Play productions***
